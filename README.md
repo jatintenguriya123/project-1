@@ -1,2 +1,1 @@
-# project-
-Ayush Ki setting ........
+# projec
